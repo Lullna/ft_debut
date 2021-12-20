@@ -43,3 +43,5 @@
 **11. How does 42 help you adapt to a work place?**
 + ANSWER LATER
 ----------------------------
+EVALUATED BY BILL 
+- it so good. You can do it . keep fighting  !!!!!!! 
