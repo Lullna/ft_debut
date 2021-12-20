@@ -45,3 +45,6 @@
 ----------------------------
 EVALUATED BY BILL 
 - it so good. You can do it . keep fighting  !!!!!!! 
+
+## `Evaluation by Porrapat (Pao)` ✔
+Khun May author has no coding experience background before joining 42Bangkok school but she never give up during the piscine. She also learning a lot and active on so many activities. I hope she can success on the real curriculum. See you next and have fun! 😉
